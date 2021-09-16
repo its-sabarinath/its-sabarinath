@@ -1,4 +1,4 @@
-### Hi there, I'm Sabatinath - aka [its-sabarinath][website] 👋
+### Hi there, I'm Sabatinath - aka [its-sabarinath] 👋
 
 
 ## I'm a engineer student and a teacher!!
