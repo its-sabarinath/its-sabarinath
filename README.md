@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m currently trying to create a community of children who are intrested in robotics
-- 🥅 2021 Goals: Contribute more to Open Source projects and to the children
+- 🥅 2022 Goals: Contribute more to Open Source projects and to the children
 - ⚡ Fun fact: I love to make things :)
 
 ### Connect with me:
